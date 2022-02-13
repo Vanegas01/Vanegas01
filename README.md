@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Vanegas01
+- 👀 I’m interested in Soccer/Football
+- 🌱 I’m currently learning english
+- 💞️ I’m looking to collaborate on no one :(
+- 📫 How to reach me --> OƤ︽𝔽𝕒𝕣𝕞𝕖𝕣#6229 (Discord)
